@@ -1,2 +1,0 @@
-# lumpiakylaa
-lumpiakyla
